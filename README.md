@@ -1,3 +1,9 @@
 # OpneglPlaceTest
 
-![Image](https://github.com/richkirl/OpneglPlaceTest/blob/main/resforgit/simplescreenrecorder-2021-09-01_23.49.54.mp4)
+https://user-images.githubusercontent.com/61930048/131765123-f29ead5d-fa9b-4f8a-948c-8b63ddefe2c3.mp4
+
+
+
+
+
+
